@@ -1,0 +1,2 @@
+# -My-First-Thailand-Tour-An-Unforgettable-Travel-Experience
+Planning my first trip to Thailand was an exciting part of the journey. Preparing my passport, arranging a visa, booking flight tickets, and choosing suitable accommodation helped make the trip more organized. For first-time visitors, checking the latest visa requirements, travel documents, airline baggage policies before departure is essential.
